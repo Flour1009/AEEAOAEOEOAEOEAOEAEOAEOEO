@@ -1,2 +1,2 @@
 # AEEAOAEOEOAEOEAOEAEOAEOEO
-# чета там тест Руфье
+чета там тест Руфье
